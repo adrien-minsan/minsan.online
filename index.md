@@ -1,13 +1,14 @@
 ---
-title: adrien minsan is finally online...
+title: adrien minsan is  online...
 ---
 
-...and I already hate it here. 
-
-(Go ahead, write me off as a fringe Luddite lunatic, despite how we're all forced to live in this technocratic dystopia, despite how my dumb site is hosted on Github pages or whatever.)
-
-Anyways, I guess I just got so sick of people assuming I'm not "real" because I'm not on socials. So here it is, my internet proof of existence. Here's where I'll link to my real-human-generated writing and share relevant updates.
+I guess I got tired of people assuming I'm not "real" because I'm not on socials. So here it is, my internet proof of existence. 
 
 Love and "hello world" and whatnot, 
 
 adrien (any/all)
+
+P.S.
+Now that you're here, check out:
+- a trailer for <a href="https://vimeo.com/1095735965">my comedy about a dermoid cyst</a>
+- a short story I wrote <a href="https://www.littleoldladycomedy.com/all-works/5vk6glpyyqbauydsdqbnes8cxw3znf">about a fling with a hot dog</a>
